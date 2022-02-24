@@ -7,8 +7,6 @@ Omo Ogun Ise ya
 Eludumare Ise Ma Yo oooo
 EHhh
 
-Adedapo Oluseun Abiodun
-Bamidele Abiodun
+Adedapo Oluseun Abiodun & Bamidele Abiodun
 
-Ibikunle Amosun
-Olufunso Amosun
+Ibikunle Amosun & Olufunso Amosun
