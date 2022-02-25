@@ -1,1 +1,1 @@
-Buhari Sucks and he's noob in Presidentcy
+Buhari Sucks and he's noob in Presidency
