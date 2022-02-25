@@ -1,4 +1,5 @@
 Balls
 Basketballs
 SoccerBalls
-TennisBall
+TennisBalls
+BadmintonBalls
